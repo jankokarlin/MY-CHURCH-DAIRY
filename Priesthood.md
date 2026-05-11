@@ -4,3 +4,9 @@ Shortly after my baptism, I received the Aaronic Priesthood and had my first ble
 On September 22, 2024, I received the Melchizedek Priesthood in Zagreb at the 3rd General Conference of the Adriatic District. President Cordray is very proud that I received these priesthoods in a short time. I was very interested in the priesthood as well as being a missionary. I received the latter in Ljubljana and am also a missionary in the Ljubljana Branch.<br>
 <br>
 All of this is a great honor and pride for me. For all of this, I am grateful to everyone, especially my sisters Paulsen and Lines, who are preparing me very well. I will be sorry when they leave, because I am afraid I will not see them again. Thank you to my sister for everything until today.<br>
+<br>
+Kmalu po krstu sem prejel Aronovo duhovništvo in sem imel prvi blagoslov kruha in vode na zakramentnem sestanku. Bilo je čudovito.<br>
+<br>
+22.9. 2024 sem na 3. Generalni konferenci Jadranskega okrožja prejel Melkedzekovo duhovništvo v Zagrebu. Predsednik Cordray je zelo ponosen, da sem prejel ta duhovništva v kratkem času. Duhovništvo me je zelo zanimalo kot biti misionar. Slednjega sem prejel v Ljubljani in sem tudi misionar Ljubljanske veje. <br>
+<br>
+Vse to je zame velika čast in ponos. Za vse to sem hvaležen vsem, posebej mojima sestrama Paulsen in Lines, ki me pripravljata zelo dobro. Žal mi, ko bosta odšli, ker imam strah, da ju ne bom več videl. Hvala moji sestri za vse do danes.<br>
