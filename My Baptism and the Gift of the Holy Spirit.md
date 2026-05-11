@@ -1,4 +1,4 @@
-# My Baptism 13.07.2024 and the Gift of the Holy Spirit 14.07.2024
+# 1. My Baptism 13.07.2024 and the Gift of the Holy Spirit 14.07.2024
 On 13.7.2024 at 10 am I was baptized. Elder Tanner baptized me. It was an incredible feeling.<br>
 On 14.7.2024 I received the gift of the Holy Ghost. Even more incredible feelings, I always have a smile on my face when I remember the baptism and the gift of the Holy Ghost.<br>
 Sisters Stutzman and Paulsen helped me. At the baptism I had another sister, Lines, who came from Serbia. Sister Stutzman went to Maribor to serve. However, my sister Stutzman is leaving on November 1st back to America. Thank you for everything.<br>
